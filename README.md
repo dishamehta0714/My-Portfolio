@@ -1,5 +1,5 @@
+<img width="1920" height="5615" alt="image" src="https://github.com/user-attachments/assets/5e95fb12-16da-4f22-be05-0e7dd240ee8b" />
 
-<img width="1920" height="6205" alt="Disha&#39;s _ Portfolio (2)" src="https://github.com/user-attachments/assets/41c758f1-e625-4778-857d-f861e6971dca" />
 
 
 
